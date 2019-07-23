@@ -12,3 +12,4 @@
 
 - in 1834, Cathcart invokes his service to the government in connection with the visit of the Tunisian legation as a reason he should get some financial assistance from the government (https://founders.archives.gov/documents/Madison/99-02-02-3014)
 - Spoke French, Italian, Portuguese, and Spanish well enough to translate for the government (https://founders.archives.gov/documents/Madison/99-02-02-0875)
+- Cathcart argues that his resolve not to engage in commerce while consul of the Barbary states has left him much worse off than some of his colleagues who had no such compunctions: https://founders.archives.gov/documents/Madison/04-02-02-0323
