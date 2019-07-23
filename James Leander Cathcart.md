@@ -11,3 +11,4 @@
 - BW3:55: Cathcart requests that since he feels his usefulness in Barbary has come to an end, he might be considered for an appointment related to the acquisition of Louisiana (18 September 1803)
 
 - in 1834, Cathcart invokes his service to the government in connection with the visit of the Tunisian legation as a reason he should get some financial assistance from the government (https://founders.archives.gov/documents/Madison/99-02-02-3014)
+- Spoke French, Italian, Portuguese, and Spanish well enough to translate for the government (https://founders.archives.gov/documents/Madison/99-02-02-0875)
