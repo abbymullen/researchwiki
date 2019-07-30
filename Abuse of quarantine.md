@@ -1,3 +1,4 @@
 Quarantine was a sticky subject for both sailors and landsmen. Often, sailors thought they were being taken advantage of in the length or severity of the quarantine regulations, whereas the landsmen thought the sailors were reckless and pushy in their attempts to get pratique or bypass it.
 
 - [James Leander Cathcart]() writes to [Samuel Barron]() that his mail was delayed because authorities at Leghorn decreed that no mail could go aboard ship before they had visited the vessel, even though Barron had received a note from [Thomas Appleton]() earlier in the day; he also laments that Barron cannot come on shore and stay in his house because of quarantine (BW1:626)
+- Cathcart lays out more explanation of why he thinks Leghorn is so problematic: https://founders.archives.gov/documents/Madison/02-06-02-0120
