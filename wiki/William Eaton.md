@@ -1,2 +1,3 @@
 - Eaton racks up substantial debt in the Mediterranean, and he hoped the government would pay those debts (they said no thanks) (BW2:352, 28 February 1803)
     - [Richard Valentine Morris]() does in fact cough up some money to pay Eaton's debts; he sends $22,000 to [James Leander Cathcart]() to give to the bey of Tunis as a start toward redeeming some of the debt (BW2:370, 7 March 1803)
+- Eaton's brother was a newspaperman in New England: https://chroniclingamerica.loc.gov/lccn/sn83030313/1859-02-11/ed-1/seq-2/
