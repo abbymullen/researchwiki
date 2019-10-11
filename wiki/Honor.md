@@ -1,3 +1,6 @@
+Honor
+=====
+
 ## National character
 - 29 November 1802: [James Leander Cathcart]() notes that it's a bad idea to cut his salary: "No person had the most distant Idea, that the United States would place their Representative upon little more than half the Salary, that the Consuls of Other Nations Enjoy at the same post, as it is evident that the Consul not being able to make the same appearance that Other Consuls make, must Ultimately sink into Contempt, and with him, the Nation he represents.
 And at this moment when we are just commencing to establish a National character, I Imagine a different policy would be advisable." (*JM*, http://rotunda.upress.virginia.edu/founders/JSMN-02-91-02-0551)
